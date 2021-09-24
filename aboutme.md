@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @nivasdhinablogger
 - 👀 I’m interested in SEO and online traffic generation.
-- 🌱 I’m currently SEO.
+- 🌱 I’m currently learning SEO.
 - 💞️ I’m looking to collaborate on anything that is related to online traffic generation.
 - 📫 How to reach me nivasdhinablogger@gmail.com
 
